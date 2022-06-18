@@ -1,1 +1,1 @@
-die daily work
+die daily
